@@ -16,5 +16,7 @@ My long-term goals are to continue integrating my clinical training with neuroim
 
 While I am not working, I enjoy rock climbing and paddle boarding with my wife Carly and relaxing with our family of three dogs: Rooster, Ava, and Ruby. 
 
+For information about joining my lab or participating in research please contact me at aswiderski@pitt.edu.
+
 
 
